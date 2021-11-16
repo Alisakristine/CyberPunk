@@ -1,5 +1,9 @@
 # Characters
 ## Main characters
-### V is the the character that CyberPunk's plot revolves around, V's backstory and life is picked by the person playing. Johnny Silverhand is embedded into V's brain after V stole a biochip.  Further into the game, you playing as V have to decide if you want to have an aliance with Johnny or defy him.
+#### V is the the character that CyberPunk's plot revolves around, V's backstory and life is picked by the person playing. Johnny Silverhand is embedded into V's brain after V stole a biochip.  Further into the game, you playing as V have to decide if you want to have an aliance with Johnny or defy him.
 #### Johnny SilverHand is another main character.  Johnny is an agressive player, he has a temper and seems to always be on edge.  Johnny is like that due to the "Second Central American war".  Johnny went intot he militray at a young age. in 2000 his best friend died protecting Johnny in the war. Johnny is one of the most famous signers of all time, he played in a bad called "Samurai".  
 ## Side Characters
+#### Judy Alvarez. Growingg up Judy lived with her grandparents, her mom passed away when Judy was young and her dad was never around.  Her grandpa taught her all that she knows now. Judy Alvarez is a skilled braindance technician, Judy can have a relationship with V, but only if v is a female.
+#### Alt Cunningham is discribed as a beautiful and talented woman who is developing a revolutionary human/IA transfer program.  Alt is the best netrunner in Night City and is the most powerful "entity" of either side of the blackwall, plus she is the only person who isnt afraid to put Johnny in his place. 
+#### Adam Smasher is a cyborg. Dont be fooled even tho he is a cyborg he still shows humantity in him. His main purpose is to repay Arasaka for their kind deeds in keeping Adam alive.  
+#### Rogue Amendiares was once going solo, but now she is the biggest and best fixer in night city.  In 2077 she is an owner of a famous nightclub called Afterlife. Some call her the "Queen of fixers" or the "queen of Afterlife"  Rogue was dating Johnny for a long time until she found out he was cheating on her.  
